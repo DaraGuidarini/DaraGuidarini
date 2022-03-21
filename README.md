@@ -3,7 +3,7 @@ Olá, eu sou a Dara Guidarini, tudo bem? 😁
 
 ✔ Estou procurando novos talentos para a equipe.
 
-👉🏻 Entre em contato comigo: daraguidarini@qdois.com.br
+👉🏻 Entre em contato comigo: dara.guidarini@qdois.com.br
 
 <div align="center">
   <a href="https://github.com/daraguidarini">
